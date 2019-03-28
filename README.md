@@ -1,11 +1,17 @@
 # whw2019_northern-lakes
 
-Hello Team!
+•	Project Lead - Paul Mann
 
-Zahra is here.
+•	Data Science Lead - Matthew Bonnema
 
-Raksha Roy
+•	Clem Miege 
+
+•	Raksha Roy
+
+• Zahra
 
 
 
-Clem Miege
+
+
+
