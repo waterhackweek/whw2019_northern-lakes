@@ -8,7 +8,16 @@
 
 •	Raksha Roy
 
-• Zahra
+• Zahra Sharif
+
+• Abdou Bah
+
+• Banafsheh 
+
+• Connor Mullen
+
+
+
 
 
 
